@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @chengyili75
+- 👀 I’m interested in foreign languages, classical music, jazz, volunteering, science and computers.
+- 🌱 I’m currently learning acquisition of information, foreign languages, and computer science.
